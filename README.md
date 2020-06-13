@@ -1,0 +1,1 @@
+# succinctab.github.io
